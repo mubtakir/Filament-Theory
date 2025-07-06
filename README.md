@@ -1,4 +1,4 @@
-# Filaments-theory
+# Filament Theory
 نظرية الفتائل
 # 🌌 Filament Theory: Sudden Collapse & Stochastic Building
 ## Revolutionary Theory of Cosmic Filaments with Entropy Integration
